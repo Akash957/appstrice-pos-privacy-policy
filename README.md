@@ -1,0 +1,1 @@
+# appstrice-pos-privacy-policy
